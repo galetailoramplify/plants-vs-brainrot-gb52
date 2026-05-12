@@ -1,4 +1,4 @@
-#  
+#  plants vs brainrots Scripts smart is the best plants vs brainrots Script, featuring instant win and silent aim. Safe and powerful for all your needs.
 
 
 
